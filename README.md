@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Codesync<br>👯 I’m looking to collaborate on  Welth<br>🌱 I’m currently learning Blockchain<br>💬 Ask me about DSA<br>⚡ Fun fact- "what's that?"<br><br>
+🔭 I’m currently working on SeizureX<br>👯 I’m looking to collaborate on  Welth<br>🌱 I’m currently learning Blockchain<br>💬 Ask me about DSA<br>⚡ Fun fact- "¿Qué diablos es eso?"<br><br>
 
 
 ## 🌐 Socials:
